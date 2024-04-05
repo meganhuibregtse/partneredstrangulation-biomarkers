@@ -1,1 +1,1 @@
-# partneredasphyxiation-biomarkerss
+# partneredstrangulation-biomarkers
